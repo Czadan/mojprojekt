@@ -1,0 +1,2 @@
+# mojprojekt
+nic do ogarniecia!!
